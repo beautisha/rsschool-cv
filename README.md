@@ -1,1 +1,1 @@
-# rsschool-cv
+https://beautisha.github.io/rsschool-cv/cv
