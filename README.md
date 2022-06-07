@@ -1,1 +1,1 @@
-https://beautisha.github.io/rsschool-cv/cv
+https://beautisha.github.io/rsschool-cv/
